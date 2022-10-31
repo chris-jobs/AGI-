@@ -1,4 +1,4 @@
-# AGI-
+# AGI
 
 As for me, I write. And it's not because writing is how I make a living. As far back as I can remember, I have always considered myself a writer. Not because someone commissioned me to do so, but because I possessed an inclination to do so. I felt an urgent desire to express myself via writing, and I continue to feel this way now. However, there are stretches of time where I don't put pen to paper. And now all the things I had meant to write are gone, buried under a mountain of fresh, not necessarily superior, thoughts.
 
